@@ -9,3 +9,4 @@
 6. Pasar la carne empanada por la preparación de huevo
 7. Fritar la milanesa hasta que quede dorada
 8. Emplatar o colocarla en el pan
+9. Comer
